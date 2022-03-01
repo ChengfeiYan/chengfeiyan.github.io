@@ -10,6 +10,8 @@ Education
 BS, Wuhan University, 2011
 PhD, University of Missouri, 2016 (advisor, Professor Xiaoqin Zou)
 
+!()[/images/yan_avatar.png]
+
 Employment 
 Postdoc, Yale University, 2016-2019 (advisor, Professor ark Gerstein)
 Associate Professor, Huazhong University of Science and Technology, 2019-now 
